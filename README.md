@@ -1,5 +1,7 @@
 VİŞNELİ CHEESECAKE
+
 Malzemeler
+
 Taban için:
 •200 g bisküvi
 •60 g eritilmiş tereyağı
@@ -39,7 +41,9 @@ Hazırlanışı
 
 
 CHERRY CHEESECAKE
+
 Ingredients
+
 For the base:
 •200 g biscuits
 •60 g melted butter
